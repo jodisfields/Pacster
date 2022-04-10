@@ -1,0 +1,32 @@
+# Foods
+
+- Brussels Sprouts
+- Bacon
+- Kale
+- Mason Jar
+- Kimchi
+- Artisanal Anything
+- Pumpkin Spice Pizza
+- Rainbow grilled cheese
+- Sushi crossaint
+- Strawberries on pizza
+- Pre-peeled oranges
+- Food not served on a plate.
+- Pumpkin spice pizza
+- partydehouse
+- Avocado latte
+- Cloud eggs
+- Ramen burger
+- Deconstructed food
+- Mermaid toast
+- Spaghetti bagel
+- heartburn.
+- Cold-pressed juice
+- Avocado burger
+- Kale Soda
+- Charcoal ice cream
+- Extreme milkshakes
+- Elevated toast
+- Rainbow bagel
+- Poke
+-
